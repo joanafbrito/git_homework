@@ -9,3 +9,5 @@ I really could understant why Google is so important, and i loved the quote: "Ne
 Using Calendar and Trello for all my activities.
 
 Write in the note book in a very thoughtful way.
+
+Shoutout to @Ramiro Vaca for sending me this computer as fast as he could!
