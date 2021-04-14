@@ -11,3 +11,7 @@ Using Calendar and Trello for all my activities.
 Write in the note book in a very thoughtful way.
 
 Shoutout to @Ramiro Vaca for sending me this computer as fast as he could!
+
+Github workflow with group in class
+
+Lets Try it 
